@@ -1,0 +1,1 @@
+ja ta podendo bagunçar?
